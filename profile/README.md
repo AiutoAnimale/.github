@@ -1,4 +1,4 @@
-![AA](https://github.com/user-attachments/assets/522fb0db-7d84-4b1f-9ede-3e40c784027f)
+![Animal Aiuto](https://github.com/user-attachments/assets/8aeac592-3e61-4c6a-b930-19a43b7964be)
 <h3>
   AA란?
 </h3>
